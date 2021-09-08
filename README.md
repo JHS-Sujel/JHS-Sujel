@@ -15,15 +15,15 @@
 
    🏠 Bondhon B/26, Khasdobir, Sylhet, Bangladesh.
      
-     - Gmail: jabedhossainsujel79@gmail.com
+     - 🔍 Gmail: jabedhossainsujel79@gmail.com
 
-     - Email: jabed.h58@yahoo.com 
+     - 🔍 Email: jabed.h58@yahoo.com 
 
-     - FB: https://m.facebook.com/jabedhossainsujel
+     - 🔍 FB: https://m.facebook.com/jabedhossainsujel
 
-     - LinkedIn: https://www.linkedin.com/mwlite/in/md-jabed-hossain-sujel-4773a81a3
+     - 🔍 LinkedIn: https://www.linkedin.com/mwlite/in/md-jabed-hossain-sujel-4773a81a3
      
-     - Twitter: https://twitter.com/JabedSujel
+     - 🔍 Twitter: https://twitter.com/JabedSujel
 
 
 ---
