@@ -14,10 +14,15 @@
   📞(+880) 1736 68 38 53
 
    🏠 Bondhon B/26, Khasdobir, Sylhet, Bangladesh.
+     
       Gmail: jabedhossainsujel79@gmail.com
+
       Email: jabed.h58@yahoo.com 
+
       FB: https://m.facebook.com/jabedhossainsujel
+
       LinkedIn: https://www.linkedin.com/mwlite/in/md-jabed-hossain-sujel-4773a81a3
+     
       Twitter: https://twitter.com/JabedSujel
 
 
