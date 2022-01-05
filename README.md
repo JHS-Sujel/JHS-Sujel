@@ -23,6 +23,12 @@
      - 🔍 LinkedIn: https://www.linkedin.com/mwlite/in/md-jabed-hossain-sujel-4773a81a3
      
      - 🔍 Twitter: https://twitter.com/JabedSujel
+     
+     - 🔍 Youtube Channel: https://www.youtube.com/channel/UC84YaRnQ22DZHIdw5Pd7mUA
+     
+     - 🔍 Instagram: https://www.instagram.com/itz_jhs
+     
+     - 🔍 GitHub: https://github.com/JHS-Sujel
 
 
 ---
