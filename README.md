@@ -32,6 +32,8 @@
      
      - 🔍 Telegram: https://t.me/JHS_Sujel
      
+     - 🔍 SnapChat: https://www.snapchat.com/add/jhssujel19?share_id=5L27CkWBpo4&locale=en-GB
+     
 ---
 
 
