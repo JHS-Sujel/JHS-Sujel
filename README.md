@@ -32,8 +32,6 @@
      
      - 🔍 Telegram: https://t.me/JHS_Sujel
      
-     - 🔍 Mobile: +8801736683853
-     
 ---
 
 
