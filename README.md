@@ -29,8 +29,11 @@
      - 🔍 Instagram: https://www.instagram.com/itz_jhs
      
      - 🔍 GitHub: https://github.com/JHS-Sujel
-
-
+     
+     - 🔍 Telegram: https://t.me/JHS_Sujel
+     
+     - 🔍 Mobile: +8801736683853
+     
 ---
 
 
