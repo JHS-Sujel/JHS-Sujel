@@ -43,7 +43,7 @@
   Metropolitan University, Sylhet.
 
 - Higher Secondary School Certificate | 2017
-  Sylhet Government College Sylhet.
+  Sylhet Government College, Sylhet.
 
 - Secondary School Certificate | 2015
   Police Line's High School, Sylhet.
