@@ -39,9 +39,8 @@
 
 # Education 
 
-- B.Sc in Computer Science and Engineering (Fourth-year final semester)
+- B.Sc in Computer Science and Engineering | 2021
   Metropolitan University, Sylhet.
-  Running CGPA: 3.32 ( 1st Class)
 
 - Higher Secondary School Certificate | 2017
   Sylhet Government College Sylhet.
