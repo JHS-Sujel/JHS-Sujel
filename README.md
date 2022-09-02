@@ -11,7 +11,7 @@
 - ⚡ Fun fact: ... I'm half finished
 - 📫 How to reach me: ... 
 
-  📞(+880) 1736 68 38 53
+  📞(+880) 1736 683 853
 
    🏠 Bondhon B/26, Khasdobir, Sylhet, Bangladesh.
      
@@ -40,7 +40,10 @@
 
 # Education 
 
-- B.Sc in Computer Science and Engineering | 2021
+- M.Sc in Computer Science | 2023
+  Staffordshire University, Stoke-on-Trent, United Kingdom.
+
+- B.Sc in Computer Science and Engineering | 2022
   Metropolitan University, Sylhet.
 
 - Higher Secondary School Certificate | 2017
