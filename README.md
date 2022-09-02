@@ -44,13 +44,19 @@
   Staffordshire University, Stoke-on-Trent, United Kingdom.
 
 - B.Sc in Computer Science and Engineering | 2022
-  Metropolitan University, Sylhet.
+  Metropolitan University, Sylhet, Bangladesh.
 
 - Higher Secondary School Certificate | 2017
-  Sylhet Government College, Sylhet.
+  Sylhet Government College, Sylhet, Bangladesh.
 
 - Secondary School Certificate | 2015
-  Police Line's High School, Sylhet.
+  Police Line's High School, Sylhet, Bangladesh.
+  
+- Junior School Certificate | 2012
+  Police Line's High School, Sylhet, Bangladesh.
+  
+- Primary School Certificate | 2009
+  Shishu Kindergarten School, Sylhet, Bangladesh.
 
 
 ---
